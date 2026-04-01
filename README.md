@@ -2,11 +2,7 @@ My Telegram channel link: https://t.me/+7noEB-Y3PehkMDVi
 My account link: @vipqvip
 
 
-
-
-My Telegram channel link: https://t.me/+7noEB-Y3PehkMDVi
-My account link: @vipqvip
-
+Explanation of how to operate
 
 
 
